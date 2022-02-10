@@ -1,4 +1,4 @@
-# JanieDamJDEdD
+# Janie Dam, JD, EdD
 MISSION STATEMENT
 
 
